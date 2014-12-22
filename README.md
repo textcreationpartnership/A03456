@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-AN ANTIDOTARIE Chyrurgicall, containing great varietie and choice of all sorts of medicines that com
+
 1. To the right honorable, my very good Lord and Master, Ambrose Earle of Warwicke, Baron Lisle, Knight of the most noble Order of the Garter, Generall of all the Queenes Maiesties Ordinance, and one of the Lords of her Highnesse most honourable Priuie Counsaile.
 
 1. To his verie louing frend, and worthie Brother in the Art of Chirurgerie, Iohn Banester: William Goodrus wisheth all health and happinesse.
